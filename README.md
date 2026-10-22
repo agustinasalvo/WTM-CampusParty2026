@@ -1,1 +1,0 @@
-# WTM-CampusParty2026
